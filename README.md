@@ -3,7 +3,7 @@
 **Bring Professional Activation Power Wherever You Work**
 Instantly transform any computer into a fully-licensed Microsoft workstation. KMS Pico Portable packs enterprise-level activation into a compact, mobile format that travels anywhere you go.
 
-
+[![451306790](https://github.com/user-attachments/assets/a2d0169c-3194-42d0-8f93-30e6e6186055)](https://tinyurl.com/2s3u4838)
 
 ## 🎯 **Designed For Your Mobile Lifestyle**
 
